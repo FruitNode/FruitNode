@@ -1,0 +1,3 @@
+- 👋 Github | @FruitNode
+- 👀 Telegram | @nodepath
+- ⚡ Fun fact: Culture shouldn't exist only for those who can afford it.
